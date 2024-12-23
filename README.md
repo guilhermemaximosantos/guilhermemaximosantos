@@ -1,6 +1,6 @@
-- <SaaS Enthusiast
+- Business Enthusiast
 - Sales • Marketing • Technology
-- I like to undertake, between one dose of coffee and another./>
+- I like to undertake, between one dose of coffee and another.
 
 
 <!---
